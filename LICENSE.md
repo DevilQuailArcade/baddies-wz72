@@ -1,4 +1,4 @@
-
+rare Script for baddies offers the most advanced baddies Script, with custom skins and one-hit kill. Perfect for dominating any match.
 
 
 
